@@ -1,2 +1,0 @@
-# apamt
-Privacy Policy
